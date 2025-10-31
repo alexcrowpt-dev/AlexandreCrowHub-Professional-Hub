@@ -12,7 +12,7 @@
 
 ## PROFESSIONAL SUMMARY
 
-A highly accomplished **Head of Growth and Innovation** with 13+ years of progressive experience in digital business development, strategic marketing, and R&D leadership. Proven expert in scaling programs to over **$3M+** across diverse international markets (EU, US, Asia, CIS). I specialize in bridging cutting-edge **R&D** (Web3, non-standard traffic) with **AI-driven Growth Marketing** to unlock new revenue streams and optimize operational efficiency. Successfully engineered production-ready AI/ML solutions that generated **$100K+ in monthly recurring revenue** and achieved a **70% reduction** in manual processes. Seeking a strategic leadership role to drive innovation and quantifiable growth.
+**Director of R&D and Growth Marketing** with 13+ years of experience specializing in the intersection of technological innovation and market expansion. Proven track record in leading R&D initiatives, including pioneering **50+ experimental campaigns** and integrating **Web3 technologies** to drive non-standard traffic growth. Expert in leveraging **AI/ML automation** to achieve quantifiable business results, including scaling programs to **$3M+**, generating **$100K+ in monthly recurring revenue**, and reducing operational costs by **70%**. Strategic leader focused on building scalable, data-driven growth frameworks across global markets (EU, US, Asia, CIS).
 
 ---
 
